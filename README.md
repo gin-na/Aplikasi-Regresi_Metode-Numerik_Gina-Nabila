@@ -1,0 +1,1 @@
+# Aplikasi-Regresi_Metode-Numerik_Gina-Nabila
